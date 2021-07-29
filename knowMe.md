@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @y-yogesh-rao
-- 👀 I’m interested in coding in Python, Node.js, Flutter, etc.
+- 👀 I love travelling, cooking, singing, playing different sports (BTW Table Tennis is favourite), skating, coding, etc. etc. etc. I know that is a lot of thing. But yes I love doing them.
 - 📫 How to reach me: yogeshrao09011998@gmail.com
