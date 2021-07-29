@@ -1,3 +1,5 @@
 - 👋 Hi, I’m @y-yogesh-rao
 - 👀 I love travelling, cooking, singing, playing different sports (BTW Table Tennis is favourite), skating, coding, etc. etc. etc. I know that is a lot of thing. But yes I love doing them.
-- 📫 How to reach me: yogeshrao09011998@gmail.com
+- 📫 How to reach me:
+    - https://www.linkedin.com/in/yogesh-rao-871b721a3/
+    - yogeshrao09011998@gmail.com
